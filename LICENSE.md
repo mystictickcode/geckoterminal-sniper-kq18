@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant Token Sniper for geckoterminal sniper bot | new-token-detection & honeypot-detection, the #1 geckoterminal sniper bot. Includes
 
 
 
